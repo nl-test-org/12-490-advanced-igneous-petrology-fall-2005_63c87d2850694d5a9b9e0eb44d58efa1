@@ -1,0 +1,1 @@
+# 12-490-advanced-igneous-petrology-fall-2005_63c87d2850694d5a9b9e0eb44d58efa1
